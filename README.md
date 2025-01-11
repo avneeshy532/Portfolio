@@ -30,6 +30,6 @@ I'm always open to collaboration and opportunities. Feel free to reach out!
 
 **📧 Email:** [avneeshy532@gmail.com]
 
-**💼 LinkedIn:** [in/ay-26a35a260]
+**💼 LinkedIn:** [https://www.linkedin.com/in/ay-26a35a260]
 
 **🌐 GitHub:** [https://github.com/avneeshy532]
